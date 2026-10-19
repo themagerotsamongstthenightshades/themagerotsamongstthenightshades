@@ -1,9 +1,11 @@
-<p align="center"> <img width="482" height="96" alt="userbox (3)" src="https://github.com/user-attachments/assets/02b20689-9421-40a9-a6e3-51e03f36da32" /> </p>
+<p align="center"> Read this Document. </p>
+<p align="center">
+  <a href="https://docs.google.com/document/d/1i3_RpoASg3MlCKjtwfory6pYubTw-gs-ClhU-2Zah_U/edit?usp=sharing">Document On ACE0FHEART5</a>
+</p>
 
+<p align="center"><a href="https://hits.sh/github.com/carcrashxoxo/"><img alt="Hits" src="https://hits.sh/github.com/carcrashxoxo.svg?style=for-the-badge&label=The%20Spawn's%20Disciples&extraCount=100&color=505b64&labelColor=211940&logo=data%3Aimage%2Fsvg%2Bxml%3Bbase64%2CPHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHZpZXdCb3g9IjAgMCAyNCAyNCI%2BPHBhdGggZD0iTTIxIDNDMjEgMyAxOS41IDYgMTYgOWwtMy41IDMuNWwtMS41LTEuNWwtMSAxbDIsMmwtNy41IDcuNWExLjUgMS41IDAgMCAwIDIuMSAwbDcuNS03LjVsMiwybDEtMWwtMS41LTEuNUwxNiAxM0MxOS41IDkuNSAyMSAzIDIxIDN6TTUgMThsLTEgMWwtMSAxaDNsLTEtMXoiIGZpbGw9IiNmZmZmZmYiLz48L3N2Zz4%3D"/></a></p>
 
-<p align="center"><img align="center" src="https://komarev.com/ghpvc/?username=carcrashxoxo&style=flat&color=ff288b&label=TeaPartyMembers" alt="view+counter"> </br></p>
-
-<p align="center"> $\color{hotpink}{\text{MY nomination account .}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{MY nomination account .}}$ </p>
 
 <p align="center">
   <a href="https://github.com/daggerstruckmage">daggerstruckmage</a>
@@ -24,11 +26,11 @@
 <p align="center"> <img width="302" height="22" alt="Screenshot 2026-09-07 10 34 32 PM" src="https://github.com/user-attachments/assets/01608a51-67ad-44d8-a72c-02f55c67384a" /> </p>
 
 
-<p align="center"> $\color{hotpink}{\text{Tׁׅhׁׅ֮ꫀׁׅܻ ℘ꭈׁׅꪱׁׅꪀׁׅᝯׁꫀׁׅܻ꯱ׁׅ֒꯱ׁׅ֒ ɑׁׅ֮℘℘ꭈׁׅꫀׁׅܻᝯׁꪱׁׅɑׁׅ֮tׁׅꫀׁׅܻ꯱ׁׅ֒ ᨮ꫶ׁׅ֮ᨵׁׅυׁׅꭈׁׅ tׁׅꪱׁׅtׁׅᥣׁׅ֪ꫀׁׅܻ꯱ׁׅ֒!}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{"Ah..! I greatly appreciate such rewards and titles. May most of thou dreams be of comfort and peace.}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{"ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ յׁׅᨵׁׅꪱׁׅꪀׁׅ ꩇׁׅ݊ᨮ꫶ׁׅ֮ ℘ɑׁׅ֮ꭈׁׅtׁׅᨮ꫶ׁׅ֮ ꪀׁׅᨵׁׅᨰׁׅ!"}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{‟ ۫ ₜwₒ ₜᵢₘₑ , ₙₑᵥₑᵣ ₗₑₜ gₒ ₒf ₘy ₕₐₙd . ⋄ 𓍯  „}}$ </p>
 
 
 
@@ -37,39 +39,34 @@
 
 
 
-
-<p align="center"> $\color{hotpink}{\text{ꪱׁׅ ᧁׁᨵׁׅ ϐׁׅ֒ᨮ꫶ׁׅ֮ tׁׅhׁׅ֮ꫀׁׅܻ ꪀׁׅɑׁׅ֮ ꩇׁׅ݊ꫀׁׅܻ꯱ׁׅ֒ :}}$ </p>
-  
- <p align="center"> $\color{hotpink}{\text{ ᝯׁᝯׁ , ɑׁׅ֮꯱ׁׅ֒℘ꫀׁׅܻꪀׁׅ ( ꩇׁׅ݊ɑׁׅ֮ꪱׁׅꪀׁׅ꯱ׁׅ֒) , ɑׁׅ֮ꪀׁׅժׁׅ݊ꭈׁׅꫀׁׅܻ , ƙׁׅ֑ꪱׁׅtׁׅtׁׅꪱׁׅ , ɑׁׅ֮ꪀׁׅժׁׅ݊ ɑׁׅ֮ꪀׁׅtׁׅꪱׁׅ}}$ </p>
-
-<p align="center"> $\color{hotpink}{\text{ɑׁׅ֮ꫀׁׅܻᧁׁᨵׁׅ꯱ׁׅ֒ꫀׁׅܻ᥊ׁׅυׁׅɑׁׅ֮ᥣׁׅ֪   ,  ᧁׁꫀׁׅܻꪀׁׅժׁׅ݊ꫀׁׅܻꭈׁׅ⨍ᥣׁׅ֪υׁׅꪱׁׅժׁׅ݊}}$ </p>
+ <p align="center"> $\color{#EAE9F2}{\text{Check StrawPG or PRNS.CC for Nicknames!}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{υׁׅ꯱ׁׅ֒ꫀׁׅܻ ɑׁׅ֮ꪀׁׅᨮ꫶ׁׅ֮ ℘ꭈׁׅᨵׁׅꪀׁׅᨵׁׅυׁׅꪀׁׅ꯱ׁׅ֒  ,  ꯱ׁׅ֒hׁׅ֮ꫀׁׅܻ/tׁׅhׁׅ֮ꫀׁׅܻᨮ꫶ׁׅ֮  ℘ꭈׁׅꫀׁׅܻ⨍.  ɑׁׅ֮⨍ɑׁׅ֮ϐׁׅ֒}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{〘 ₕₑ/ₕᵢₘ 〙ᵃᵉᵍᵒˢᵉˣᵘᵃˡ + ᵍᵉⁿᵈᵉʳᶠˡᵘⁱᵈ.}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{"꠸ ꪖꪑ ᦓꪊᥴꫝ ꪖ ρ᥅ꫀꪻꪻꪗ ρ᥅꠸ꪀᥴꫀᦓᦓ."}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{"May thy be blessed by the spawn with a forevermore peaceful life of cotton and silk."}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 <p align="center"> <img width="300" height="57" alt="Tumblr-l-621950753802118" src="https://github.com/user-attachments/assets/bf903193-9942-4acc-b818-2f1465ac8f5c" /> </p>
 
-<p align="center"> $\color{hotpink}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{ꪱׁׅ' ꩇׁׅ݊ ɑׁׅ֮ ꩇׁׅ݊ꪱׁׅꪀׁׅᨵׁׅꭈׁׅ . 13+ --- ꯱ׁׅ֒ᨵׁׅ 18+ ꩇׁׅ݊υׁׅ꯱ׁׅ֒tׁׅ ꪱׁׅᨰׁׅᝯׁɑׁׅ֮υׁׅtׁׅꪱׁׅᨵׁׅꪀׁׅ ɑׁׅ֮ꪀׁׅժׁׅ݊ ᝯׁɑׁׅ֮ꭈׁׅꫀׁׅܻ . }}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{I'm a minor, so anyone older with odd intentions INTERACT WITH CAUTION, I will log off to get away from you or just hide you in general. }}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{BYI : ℑ𝔣 𝔶𝔬𝔲 𝔣𝔢𝔢𝔩 𝔲𝔫𝔠𝔬𝔪𝔣𝔬𝔯𝔱𝔞𝔟𝔩𝔢 𝔴𝔦𝔱𝔥 𝔪𝔢, 𝔭𝔩𝔢𝔞𝔰𝔢 𝔱𝔢𝔩𝔩 𝔪𝔢 𝔦𝔣 𝔦𝔱 𝔟𝔬𝔱𝔥𝔢𝔯𝔰 𝔶𝔬𝔲 𝔟𝔢𝔠𝔞𝔲𝔰𝔢 ℑ'𝔪 𝔮𝔲𝔦𝔱𝔢 𝔟𝔞𝔡 𝔞𝔱 𝔱𝔢𝔩𝔩𝔦𝔫𝔤 𝔶𝔬𝔲𝔯 𝔢𝔪𝔬𝔱𝔦𝔬𝔫𝔰 𝔱𝔥𝔯𝔬𝔲𝔤𝔥 𝔱𝔢𝔵𝔱. 𝔇𝔯𝔶 𝔱𝔢𝔵𝔱𝔦𝔫𝔤 𝔴𝔦𝔩𝔩 𝔫𝔬𝔱 𝔥𝔢𝔩𝔭 𝔪𝔢 𝔨𝔫𝔬𝔴 𝔶𝔬𝔲'𝔯𝔢 𝔫𝔬𝔱 𝔦𝔫 𝔱𝔥𝔢 𝔪𝔬𝔬𝔡 𝔣𝔬𝔯 𝔰𝔬𝔪𝔢𝔱𝔥𝔦𝔫𝔤.}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{BYI : If you feel uncomfortable, tell me, otherwise I will continue with what I am doing/saying! }}$ </p>
 
-<p align="center"> $\color{hotpink}{\text{ϐׁׅ֒ɑׁׅ֮꯱ׁׅ֒ꪱׁׅᝯׁ ժׁׅ݊ꪀׁׅꪱׁׅ +}}$ </p>
-<p align="center"> $\color{hotpink}{\text{ᨵׁׅtׁׅhׁׅ֮ꫀׁׅܻꭈׁׅ ժׁׅ݊ꪀׁׅꪱׁׅ :  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{Basic DNI +}}$ </p>
+<p align="center"> $\color{#EAE9F2}{\text{OTHER DNI:  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
 
 
 
