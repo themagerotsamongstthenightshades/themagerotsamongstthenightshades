@@ -3,7 +3,7 @@
   <a href="https://docs.google.com/document/d/1i3_RpoASg3MlCKjtwfory6pYubTw-gs-ClhU-2Zah_U/edit?usp=sharing">Document On ACE0FHEART5</a>
 </p>
 
-<p align="center"><a href="https://hits.sh/github.com/carcrashxoxo/"><img alt="Hits" src="https://hits.sh/github.com/carcrashxoxo.svg?style=for-the-badge&label=The%20Spawn's%20Disciples&extraCount=100&color=505b64&labelColor=211940&logo=data%3Aimage%2Fsvg%2Bxml%3Bbase64%2CPHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHZpZXdCb3g9IjAgMCAyNCAyNCI%2BPHBhdGggZD0iTTIxIDNDMjEgMyAxOS41IDYgMTYgOWwtMy41IDMuNWwtMS41LTEuNWwtMSAxbDIsMmwtNy41IDcuNWExLjUgMS41IDAgMCAwIDIuMSAwbDcuNS03LjVsMiwybDEtMWwtMS41LTEuNUwxNiAxM0MxOS41IDkuNSAyMSAzIDIxIDN6TTUgMThsLTEgMWwtMSAxaDNsLTEtMXoiIGZpbGw9IiNmZmZmZmYiLz48L3N2Zz4%3D"/></a></p>
+<p align="center"><a href="https://hits.sh/github.com/carcrashxoxo/"><img alt="Hits" src="https://hits.sh/github.com/carcrashxoxo.svg?style=plastic&label=Spawn's%20Disciples&extraCount=59249&color=41607b&labelColor=8ba6bf"/></a></p>
 
 <p align="center"> $\color{#EAE9F2}{\text{MY nomination account .}}$ </p>
 
@@ -34,7 +34,7 @@
 
 
 
-<p align="center"> <img width="1000" height="200" alt="951948440010657560" src="https://github.com/user-attachments/assets/9014ac87-2f33-4790-a616-544ce5500fd1" /> </p>
+<p align="center"> <img width="40" height="40" alt="tumblr_3419c191b22f35800f82827f87bf5a8d_a1657bff_75" src="https://github.com/user-attachments/assets/a5a12c99-19c3-4666-ac99-e200aebf741b" /> </p>
 
 
 
@@ -53,7 +53,7 @@
 
 <p align="center"> $\color{#EAE9F2}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
-<p align="center"> <img width="300" height="57" alt="Tumblr-l-621950753802118" src="https://github.com/user-attachments/assets/bf903193-9942-4acc-b818-2f1465ac8f5c" /> </p>
+<p align="center"> <img width="900" height="200" alt="tumblr_4169587c48597c5f37383b744fb57c87_105ccaef_400 (1)" src="https://github.com/user-attachments/assets/38a5860b-cb7f-4283-a624-c7ead2d6dcbc" /></p>
 
 <p align="center"> $\color{#EAE9F2}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
@@ -70,4 +70,4 @@
 
 
 
-<p align="center"> <img width="1000" height="200" alt="951948440010657560" src="https://github.com/user-attachments/assets/418217a8-93e0-4ce7-bbfc-27204e74fe87" /> </p>
+<p align="center"> <img width="420" height="420" alt="noFilter" src="https://github.com/user-attachments/assets/abfc8b36-c972-4dc0-9851-0a56d32935ac" /> </p>
