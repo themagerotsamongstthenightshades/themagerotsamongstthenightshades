@@ -41,12 +41,6 @@
 
 
 
-<p align="center">$\color{#E4BB6B}{\text{"ꫝꫀꫝ, ꪗ'𝕜ꪀꪮ᭙ 𝟡𝟡.𝟡% ꪮᠻ ᧁꪖꪑ᥇ꪶꫀ𝕣ડ 𝕢uⅈ𝕥 ᥇ꫀᠻꪮ𝕣ꫀ 𝕥ꫝꫀꪗ ᭙ⅈꪀ ᥇ⅈᧁ, ꪖꪀᦔ ⅈ ꪖⅈꪀ'𝕥 ᧁꪮꪀꪀꪖ ᥇ꫀ ꪮꪀꫀ ꪮᠻ ꫀꪑ!"}}$</p>
-
-
-
-
-
 <p align="center"><img width="828" height="236" alt="tumblr_c14d5c9cb6a8dcfb54e8df8ebcdd3c6d_282ca415_1280 (1)" src="https://github.com/user-attachments/assets/d626e362-d5fb-41e2-ba03-8327f95373d0" /></p>
 
 
@@ -79,6 +73,8 @@
 <p align="center"> $\color{#E4BB6B}{\text{Basic DNI +}}$ </p>
 <p align="center"> $\color{#782b11}{\text{OTHER DNI:  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
 
+
+<p align="center">$\color{#E4BB6B}{\text{"ꫝꫀꫝ, ꪗ'𝕜ꪀꪮ᭙ 𝟡𝟡.𝟡% ꪮᠻ ᧁꪖꪑ᥇ꪶꫀ𝕣ડ 𝕢uⅈ𝕥 ᥇ꫀᠻꪮ𝕣ꫀ 𝕥ꫝꫀꪗ ᭙ⅈꪀ ᥇ⅈᧁ, ꪖꪀᦔ ⅈ ꪖⅈꪀ'𝕥 ᧁꪮꪀꪀꪖ ᥇ꫀ ꪮꪀꫀ ꪮᠻ ꫀꪑ!"}}$</p>
 
 
 <p align="center"><img width="1000" height="190" alt="tumblr_9946e294509ca1a60905be871cb20d85_43bae76c_1280 (1)" src="https://github.com/user-attachments/assets/f8ada1cb-917b-44a3-90ab-2e0b0bbef7ff" /></p>
