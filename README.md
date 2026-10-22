@@ -37,10 +37,15 @@
 <p align="center"> $\color{#E4BB6B}{\text{‟ ۫ 𝕛ꪖᥴ𝕜ρꪮ𝕥 ! . ⋄ 𓍯  „}}$ </p>
 
 
+<p align="center"> $\color{#782b11}{\text{〘  ꫝꫀ/ꫝⅈꪑ  〙 ᧁꫀꪀᦔꫀ𝕣ᠻꪶꪊⅈᦔ  +  ꪖꫀᧁꪮડꫀ᥊ꪊꪖꪶ .}}$ </p>
+
+
+
+<p align="center"> $\color{#E4BB6B}{\text{"ꫝꫀꫝ, ꪗ'𝕜ꪀꪮ᭙ 𝟡𝟡.𝟡% ꪮᠻ ᧁꪖꪑ᥇ꪶꫀ𝕣ડ 𝕢uⅈ𝕥 ᥇ꫀᠻꪮ𝕣ꫀ 𝕥ꫝꫀꪗ ᭙ⅈꪀ ᥇ⅈᧁ, ꪖꪀᦔ ⅈ ꪖⅈꪀ'𝕥 ᧁꪮꪀꪀꪖ ᥇ꫀ ꪮꪀꫀ ꪮᠻ ꫀꪑ!"}}$ </p>
+
+
 
 <p align="center"><img width="828" height="236" alt="tumblr_c14d5c9cb6a8dcfb54e8df8ebcdd3c6d_282ca415_1280 (1)" src="https://github.com/user-attachments/assets/d626e362-d5fb-41e2-ba03-8327f95373d0" /></p>
-
-
 
 
 <p align="center">
@@ -57,14 +62,6 @@
 </p>
 
 
-<p align="center"> $\color{#E4BB6B}{\text{〘  ꫝꫀ/ꫝⅈꪑ  〙 ᧁꫀꪀᦔꫀ𝕣ᠻꪶꪊⅈᦔ  +  ꪖꫀᧁꪮડꫀ᥊ꪊꪖꪶ .}}$ </p>
-
-
-
-<p align="center"> $\color{#782b11}{\text{"ꫝꫀꫝ, ꪗ'𝕜ꪀꪮ᭙ 𝟡𝟡.𝟡% ꪮᠻ ᧁꪖꪑ᥇ꪶꫀ𝕣ડ 𝕢uⅈ𝕥 ᥇ꫀᠻꪮ𝕣ꫀ 𝕥ꫝꫀꪗ ᭙ⅈꪀ ᥇ⅈᧁ, ꪖꪀᦔ ⅈ ꪖⅈꪀ'𝕥 ᧁꪮꪀꪀꪖ ᥇ꫀ ꪮꪀꫀ ꪮᠻ ꫀꪑ!"}}$ </p>
-
-
-
 
 <p align="center"><img width="828" height="236" alt="tumblr_32fbcdb169a31054a7ce8a4639e2f6fe_e737ba6a_1280 (1)" src="https://github.com/user-attachments/assets/79eb738c-1464-46f2-8d4b-b055f76718be" /></p>
 
@@ -75,10 +72,10 @@
 
 
 
-<p align="center"> $\color{#EAE9F2}{\text{BYI : If you feel uncomfortable, tell me, otherwise I will continue with what I am doing/saying! }}$ </p>
+<p align="center"> $\color{#782b11}{\text{BYI : If you feel uncomfortable, tell me, otherwise I will continue with what I am doing/saying! }}$ </p>
 
-<p align="center"> $\color{#782b11}{\text{Basic DNI +}}$ </p>
-<p align="center"> $\color{#E4BB6B}{\text{OTHER DNI:  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
+<p align="center"> $\color{#E4BB6B}{\text{Basic DNI +}}$ </p>
+<p align="center"> $\color{#782b11}{\text{OTHER DNI:  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
 
 
 
