@@ -2,14 +2,14 @@
 
 
 
-<p align="center"> Read this Document. </p>
+<p align="center"> $\color{#782b11}{\text{𝕌ℝ𝔾𝔼ℕ𝕋  |  ℝ𝕖𝕒𝕕 𝕋𝕙𝕖 𝔻𝕠𝕔𝕦𝕞𝕖𝕟𝕥 .}}$ </p>
 <p align="center">
   <a href="https://docs.google.com/document/d/1i3_RpoASg3MlCKjtwfory6pYubTw-gs-ClhU-2Zah_U/edit?usp=sharing">Document On ACE0FHEART5</a>
 </p>
 
 <p align="center"><a href="https://hits.sh/github.com/themagerotsamongstthenightshades/"><img alt="Hits" src="https://hits.sh/github.com/themagerotsamongstthenightshades.svg?style=for-the-badge&label=jackpots%20%3E&extraCount=59343&color=FFDD87&labelColor=462114&logo=bitcoinsv"/></a></p>
 
-<p align="center"> $\color{#E4BB6B}{\text{MY nomination account .}}$ </p>
+<p align="center"> $\color{#E4BB6B}{\text{ℕ𝕠𝕞𝕚𝕟𝕒𝕥𝕚𝕠𝕟 𝔸𝕔𝕔𝕠𝕦𝕟𝕥}}$ </p>
 
 <p align="center">
   <a href="https://github.com/daggerstruckmage">daggerstruckmage</a>
@@ -30,7 +30,7 @@
 <p align="center"> <img width="302" height="22" alt="Screenshot 2026-09-07 10 34 32 PM" src="https://github.com/user-attachments/assets/01608a51-67ad-44d8-a72c-02f55c67384a" /> </p>
 
 
-<p align="center"> $\color{#782b11}{\text{"Ah..! I greatly appreciate such rewards and titles. May most of thou dreams be of comfort and peace.}}$ </p>
+<p align="center"> $\color{#782b11}{\text{"ℍ𝕖𝕙. 𝕆𝕙 𝕓𝕠𝕪, 𝕀'𝕞 𝕗𝕝𝕒𝕥𝕥𝕖𝕣𝕖𝕕 𝕓𝕪 𝕥𝕙𝕖 𝕣𝕖𝕨𝕒𝕣𝕕𝕤 𝕒𝕟𝕕 𝕥𝕚𝕥𝕝𝕖𝕤. 𝕋𝕙𝕒𝕟𝕜 𝕪𝕠𝕦 𝕒𝕝𝕝 𝕧𝕖𝕣𝕪 𝕞𝕦𝕔𝕙."}}$ </p>
 
 
 
@@ -43,23 +43,31 @@
 
 
 
- <p align="center"> $\color{#782b11}{\text{Check StrawPG or PRNS.CC for Nicknames!}}$ </p>
+<p align="center">
+  <a href="https://pronouns.cc/@luckymage">ρ𝕣ꪀડ.ᥴᥴ</a>
+</p>
+<p align="center">
+  <a href="https://unfaithfulmage.straw.page/">ડρ</a>
+</p>
+<p align="center">
+  <a href="https://unfaithfulmage.atabook.org/">ꪖ𝕥ꪖ</a>
+</p>
+<p align="center">
+  <a href="https://rentry.co/mybeloveddagger">𝕣ꫀꪀ𝕥𝕣ꪗ</a>
+</p>
+
+
+<p align="center"> $\color{#E4BB6B}{\text{〘  ꫝꫀ/ꫝⅈꪑ  〙 ᧁꫀꪀᦔꫀ𝕣ᠻꪶꪊⅈᦔ  +  ꪖꫀᧁꪮડꫀ᥊ꪊꪖꪶ .}}$ </p>
 
 
 
-<p align="center"> $\color{#E4BB6B}{\text{〘 ₕₑ/ₕᵢₘ 〙ᵃᵉᵍᵒˢᵉˣᵘᵃˡ + ᵍᵉⁿᵈᵉʳᶠˡᵘⁱᵈ.}}$ </p>
+<p align="center"> $\color{#782b11}{\text{"ꫝꫀꫝ, ꪗ'𝕜ꪀꪮ᭙ 𝟡𝟡.𝟡% ꪮᠻ ᧁꪖꪑ᥇ꪶꫀ𝕣ડ 𝕢uⅈ𝕥 ᥇ꫀᠻꪮ𝕣ꫀ 𝕥ꫝꫀꪗ ᭙ⅈꪀ ᥇ⅈᧁ, ꪖꪀᦔ ⅈ ꪖⅈꪀ'𝕥 ᧁꪮꪀꪀꪖ ᥇ꫀ ꪮꪀꫀ ꪮᠻ ꫀꪑ!"}}$ </p>
 
 
 
-<p align="center"> $\color{#782b11}{\text{"May thy be blessed by the spawn with a forevermore peaceful life of cotton and silk."}}$ </p>
-
-
-
-<p align="center"> $\color{#E4BB6B}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 <p align="center"><img width="828" height="236" alt="tumblr_32fbcdb169a31054a7ce8a4639e2f6fe_e737ba6a_1280 (1)" src="https://github.com/user-attachments/assets/79eb738c-1464-46f2-8d4b-b055f76718be" /></p>
 
-<p align="center"> $\color{#782b11}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 
 
