@@ -62,6 +62,22 @@
 <p align="center"><img width="828" height="236" alt="tumblr_32fbcdb169a31054a7ce8a4639e2f6fe_e737ba6a_1280 (1)" src="https://github.com/user-attachments/assets/79eb738c-1464-46f2-8d4b-b055f76718be" /></p>
 
 
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    $${\Large\color{#E4BB6B}\textbf{ᠻꪖꪑⅈꪶꪗ ꪖꪀᦔ ᠻ𝕣ⅈꫀꪀᦔડ .}}$$
+  </summary>
+</p>
+<div align= "center">
+    <p align="center">$${\color{#E4BB6B}\textbf{𝐅𝐀𝐌𝚰𝐋𝐘  :  𝐒ɦα𐓣𝗍𝗒, 𝐌α𝖿𝗂ⱺ𝗌ⱺ, 𝐅𝗂𝗌ɦ, 𝐄ᥣᥣ𝗂ⱺ𝗍ⱺ, 𝐒ρ𝗋𝗂𐓣𝗀, 𝐂αρⱺ, 𝐉α𝗑/𝐃ⱺ𐓣, 𝐒𝗂𝗋𝗂υ𝗌, 𝐂ᥣⱺ𝗏𝖾𝗋, α𐓣ᑯ 𝖾𝗍𝖼.}}$$
+    </p>
+  <p align="center">$${\color{#E4BB6B}\textbf{𝐅𝐑𝚰𝐄𝐍𝐃𝐒  :  𝐒ɦα𐓣𝗍𝗒, 𝐌α𝖿𝗂ⱺ𝗌ⱺ, 𝐅𝗂𝗌ɦ, 𝐓𝗂ꭑ𝖾𝗒, 𝐋ⱺ𝗀α𐓣, 𝐄ᥣᥣ𝗂, 𝐍α𝖼ɦⱺ, 𝐀ᑲᑲ𝗒, 𝐒𝖾ρ𝗍𝖾ꭑᑲ𝖾𝗋, 𝐌α𐓣𝗀ⱺ, 𝐁𝗋υ𝗍υ𝗌, α𐓣ᑯ ꭑⱺ𝗋𝖾.}}$$
+  </p>
+
+   <p align="center">$${\color{#E4BB6B}\textbf{𝐓ⱺ 𝐌α𝖿𝗂 α𐓣ᑯ 𝐓𝗂ꭑ𝖾𝗒  >>  ᴇᴜ ᴀᴍᴏ ᴍᴜɪᴛᴏ ᴠᴏᴄês ᴅᴏɪs — ɴãᴏ sᴇɪ ᴏ ǫᴜᴇ ғᴀʀɪᴀ sᴇᴍ ᴠᴏᴄês ᴅᴏɪs ᴏᴜ sᴇᴍ ᴏ ᴄʜᴀᴛ ᴇᴍ ɢʀᴜᴘᴏ. ᴍᴇᴜ ᴛᴡᴏ ᴛɪᴍᴇ ᴇ ᴍᴇᴜ ᴅᴇʙᴛ ᴄᴏʟʟᴇᴄᴛᴏʀ. #FAVORITISM .}}$$
+  </p>
+   </details>
 
 
 <p align="center"> $\color{#E4BB6B}{\text{I'm a minor, so anyone older with odd intentions INTERACT WITH CAUTION, I will log off to get away from you or just hide you in general. }}$ </p>
