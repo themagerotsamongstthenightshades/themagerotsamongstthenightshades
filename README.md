@@ -1,3 +1,11 @@
+<p align="center"> $\color{#782b11}{\text{ BAT  /  UZI  , ILY YOUR SO FUNNY WTH}}$ </p>
+<p align="center"><img width="337" height="38" alt="Screenshot 2026-10-23 8 12 59 PM" src="https://github.com/user-attachments/assets/7574681e-5894-44e2-b8c4-38b4b39b4655" /></p>
+<p align="center"><img width="310" height="22" alt="Screenshot 2026-10-23 8 12 35 PM" src="https://github.com/user-attachments/assets/ac91bcc7-a249-4903-9b75-44a012c45b5d" /></p>
+
+
+
+
+
 <p align="center"><img width="1000" height="190" alt="tumblr_5d32560113f26940d7261f6993b007d0_347ef70b_1280 (1)" src="https://github.com/user-attachments/assets/428fca1b-19cb-49a0-8621-ded3c65ff823" /></p>
 
 
