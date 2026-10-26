@@ -58,7 +58,7 @@
   <a href="https://pronouns.cc/@luckymage">ρ𝕣ꪀડ.ᥴᥴ</a>
 </p>
 <p align="center">
-  <a href="https://unfaithfulmage.straw.page/">ડρ</a>
+  <a href="https://spawnsvillage.straw.page/">ડρ</a>
 </p>
 <p align="center">
   <a href="https://unfaithfulmage.atabook.org/">ꪖ𝕥ꪖ</a>
